@@ -116,3 +116,22 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Fruit Salad with Honey-Lime Dressing
+
+Ingredients:
+1. 2 cups fresh strawberries, hulled and halved
+2. 1 cup fresh blueberries
+3. 1 cup fresh pineapple, diced
+4. 1 cup green grapes, halved
+5. 1 cup mango, peeled and diced
+6. 1 tablespoon fresh mint leaves, chopped (optional, for garnish)
+
+Instructions:
+1. Wash and prepare all the fresh fruits as specified in the ingredients.
+2. In a small bowl, whisk together the honey, fresh lime juice, lime zest until well combined. 
+3. In a large mixing bowl, gently combine the strawberries, blueberries, pineapple, grapes, and mango.
+4. Pour the honey-lime dressing over the mixed fruit. Gently toss until all the fruits are evenly coated with the dressing.
+5. Cover the bowl and refrigerate the fruit salad for at least 30 minutes to allow the flavors to meld.
+6. Just before serving, sprinkle chopped fresh mint leaves over the fruit salad for an extra burst of flavor.
+7. Spoon the refreshing fruit salad into individual bowls or onto a serving platter and enjoy!
