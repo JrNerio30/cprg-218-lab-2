@@ -69,6 +69,7 @@ Instructions:
 5. Add spaghetti sauce to the skillet and bring to a simmer.
 6. Reduce heat to low and let simmer for 10-15 minutes.
 7. Serve meatballs and sauce over spaghetti.
+8. **OPTIONAL: Added your one cup of sriracha.
 
 ### Grilled Chicken Sandwich
 
@@ -81,6 +82,7 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- Pickles
 
 Instructions:
 1. Preheat grill to medium-high heat.
