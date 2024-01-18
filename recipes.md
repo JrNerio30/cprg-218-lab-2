@@ -80,7 +80,7 @@ Ingredients:
 - 4 slices Swiss cheese
 - 4 hamburger buns
 - Lettuce
-- Tomato
+- Tomato Slices
 - Mayonnaise
 - Pickles
 
